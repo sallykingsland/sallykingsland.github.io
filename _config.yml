@@ -1,0 +1,12 @@
+# Site settings
+title: Sally Kingsland Spiritual Direction
+email: aussiefriendsally@gmail.com
+description: Spiritual direction services by Sally Kingsland
+baseurl: "" # the subpath of your site, e.g. /blog/
+url: "https://sallykingsland.com" # the base hostname & protocol for your site
+
+twitter_username:
+github_username:
+
+# Build settings
+markdown: kramdown
