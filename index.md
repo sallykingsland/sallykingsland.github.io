@@ -13,13 +13,17 @@ To listen another’s soul into a condition of disclosure and discovery may be a
 <footer>Douglas Steere</footer>
 </blockquote>
 
-The work of a spiritual companion is difficult to articulate, in a similar sense to finding it difficult to name the great Mystery, divine essence, Spirit, Higher Power, Source, G-d…. There are some things we can point to, though, such as deep listening, supporting discernment and attending to the inner life. And we can say a few things about what it is not, such as advice, counseling or therapy. How a spiritual companion orients their own life is essential – towards the Mystery, grounded in contemplation, reflection and compassion. 
+Are you awakening to your inner life? Are you seeking to be more whole, joyful or peaceful? Has your spiritual life seemed to stall? Are you wishing you had someone who could listen to you in depth? 
 
-When we start to awaken to our inner life, and as we progress on the spiritual path throughout life, it can help to have someone to walk the path with. This company may arise in many ways (a grandmother, wise teacher, close friend etc), one of which is to be accompanied by someone who has consciously been walking their own path and can support you on yours. Sometimes awakening to our inner world can be abrupt, through a major disruption in life; sometimes it may may arise slowly, manifesting in discontent or malaise. 
+As we progress on the spiritual path throughout life, it can help to have someone to walk the path with. This company may arise in various ways such as through a beloved grandmother, wise teacher or close friend. Another, age-old, way is to be accompanied by a companion who has consciously been walking their own path and can support you on yours. 
+
+Sometimes awakening to our inner world can be abrupt, through a major disruption in life; sometimes it may may arise slowly, manifesting in discontent or malaise. 
 
 What we seek, or have thrust upon us, is the opportunity for growth and transformation that comes from the wisest part of ourselves and beyond. I believe we have the inner wisdom we need to heal and grow. The role of a spiritual companion, among other things, is to nurture your capacity to access your own depths and strengths. 
 
-There are many reasons that people seek out a spiritual companion. Some are looking for more depth in their experience of life, some want to know why they feel that something is ‘missing’, some want a spiritual or religious connection and haven’t found a way to meet that need. Others seek to deepen their prayer life and connection to G-d. Perhaps you feel an inner longing that you do not have words for? Whatever your reason, if you’re feeling a prompt in that direction, congratulations on taking steps to explore! I wish you well whatever path you choose.
+There are many reasons that people seek out a spiritual companion. Some are looking for more depth in their experience of life, some want to know why they feel that something is ‘missing’, some want a spiritual or religious connection and haven’t found a way to meet that need. Others seek to deepen their prayer life and connection to the 'more than'. Perhaps you feel an inner longing that you do not have words for? Whatever your reason, if you’re feeling a prompt in that direction, congratulations on taking steps to explore! I wish you well whatever path you choose.
+
+The work I do as a spiritual companion is difficult to articulate, in a similar way that finding a way to refer to the great Mystery, divine essence, Spirit, Higher Power, Source, G-d, God is challenging. There are some things we can point to, though, in what spiritual companions do, such as deep listening, supporting discernment and attending to the inner life. And we can say a few things about what it is not, such as advice, counseling or therapy. How a spiritual companion orients their own life is essential – towards the Mystery, grounded in contemplation, reflection and compassion. I would be delighted to meet with you and explore what might be possible. 
 
 
 ### Resources
