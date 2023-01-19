@@ -32,9 +32,7 @@ The work I do as a spiritual companion is difficult to articulate, just as it is
 
 ### Resources
 
-You may find the following resources from [Spiritual Directors International][SDI] useful:
-
-* [The Seek and Find Guide](https://www.sdiworld.org/find-a-spiritual-director/seek-and-find-guide)
+You may find the following resource from [Spiritual Directors International][SDI] useful:
 
 * [What is Spiritual Direction](https://www.sdiworld.org/find-a-spiritual-director/what-is-spiritual-direction)
 
