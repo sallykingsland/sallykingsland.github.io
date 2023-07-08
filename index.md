@@ -11,6 +11,8 @@ To listen another’s soul into a condition of disclosure and discovery may be a
 <footer>Douglas Steere</footer>
 </blockquote>
 
+Embark on a Journey of Self-Discovery and Transformation
+
 Are you awakening to the depths of your inner life, feeling frustrated or plain miserable? Whether you actively seek a connection with your inner world or find yourself thrust into it by life's disruptions, I welcome you. Together, we can navigate the path towards growth and transformation, guided by the wisdom that resides within each of us.
 
 In my practice, I firmly believe that we all possess the inner wisdom necessary for healing and personal growth. As a trained therapist, I am here to support and facilitate your unique process of self-discovery.
