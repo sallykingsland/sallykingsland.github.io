@@ -2,7 +2,7 @@
 layout: front
 ---
 
-Embark on a Journey of Self-Discovery and Transformation
+## Embark on a Journey of Self-Discovery and Transformation
 
 Are you awakening to the depths of your inner life, feeling frustrated or plain miserable? Whether you actively seek a connection with your inner world or find yourself thrust into it by life's disruptions, I welcome you. Together, we can navigate the path towards growth and transformation, guided by the wisdom that resides within each of us.
 
