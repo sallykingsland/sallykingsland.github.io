@@ -27,4 +27,11 @@ Utilising the principles of Jungian psychodynamic psychotherapy, I adopt a non-p
 
 While therapy is not always easy, it stands as one of the most important investments you can make in your life. Through our work together, you can experience improved relationships, self-acceptance, and a deeper sense of self.
 
+## Sandplay Therapy
+
+<p>
+</p>  
+
+In addition to talking therapy I offer sandplay with a full set up of wet and dry sand trays. Sandplay is offered as a stand alone therapy or it can be flexibly incorporated into a psychotherapy journey. It is a profoundly powerful modality that allows for the body and soul to speak directly without words.  
+
 -----
