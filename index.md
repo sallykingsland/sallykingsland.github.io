@@ -2,12 +2,11 @@
 layout: front
 ---
 
-## Finding the help you need
+## Jungian Psychotherapy and Sandplay
 <p>
 </p>  
-Are you questioning where you are in life? Or perhaps feeling stuck? Or just pretty miserable? Whether you are actively seeking to understand yourself or wanting help to deal with life's challenges, I welcome you. 
-
-I firmly believe that we all possess the inner wisdom necessary for healing and personal growth. As a trained therapist, I am here to work with your unique needs and support and facilitate a process to help you.
+  
+I am a Jungian psychotherapist trained to help adults understand themselves and what is going on in their lives. 
 
 <blockquote>
 <p><i>
@@ -16,22 +15,27 @@ There is a crack, a crack in everything, it’s how the light gets in.
 <footer>Leonard Cohen</footer>
 </blockquote>
 
-I work with adults and older teens who may be grappling with anxiety and/or depression, a general sense of unease, or various other psychological and relational challenges. Within the safety of our therapeutic space, you will have the freedom to explore what is going on for you.
+Working with me can include considering one’s dreams and doing sandplay among other things (yes, the sandplay is for adults). Dreamwork and sandplay are very powerful ways to engage with parts of ourselves that can be otherwise hard to reach. 
 
-## Jungian Psychotherapy
-
-<p>
-</p>  
-
-Psychodynamic psychotherapy, including Jungian psychotherapy, is an effective way to address a wide range of psychological problems and challenges. Jonathan Shedler is one author you may find helpful to look up to find out more.
-
-I seek to support you in figuring out what is going on for you in a non-pathologising way. While anxiety and depression are the common results of psychological distress, the causes are varied and require careful exploration with each individual. Jungian psychotherapy can lead to increased understanding of yourself and improved relationships.
-
-## Sandplay Therapy
+## Working with me
 
 <p>
 </p>  
 
-I also offer sandplay with a full set up of wet and dry sand trays (photos below). Sandplay is a profoundly powerful modality that allows for expression without words. 
+I work with people who are ‘stuck’ and/or ‘lost’ and/or who have questions about life or themselves. “This can’t be all there is” or “there is something missing” or “there’s something wrong here but I can’t really put my finger on it” might be the kinds of thoughts you’re having. 
+
+I can help people explore spiritual matters. This can include asking the bigger questions of life and connecting to that which brings about awe and wonder. 
+
+I support people to find meaning, purpose and connection.
+
+## We aren't always looking for growth...
+
+<p>
+</p>  
+...but sometimes it comes looking for us.  
+
+We all possess the inner wisdom necessary for healing and personal growth. We need others to help us access that inner wisdom. 
+
+If any of the above sounds like something you would like to explore you are welcome to contact me. The work is held in strict confidence. 
 
 -----
