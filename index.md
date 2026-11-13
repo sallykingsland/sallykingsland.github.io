@@ -8,13 +8,6 @@ layout: front
   
 I am a Jungian psychotherapist trained to help adults understand themselves and what is going on in their lives. 
 
-<blockquote>
-<p><i>
-There is a crack, a crack in everything, it’s how the light gets in.
-</i></p>
-<footer>Leonard Cohen</footer>
-</blockquote>
-
 Working with me can include considering one’s dreams and doing sandplay among other things (yes, the sandplay is for adults). Dreamwork and sandplay are very powerful ways to engage with parts of ourselves that can be otherwise hard to reach. 
 
 ## Working with me
@@ -33,6 +26,13 @@ I support people to find meaning, purpose and connection.
 <p>
 </p>  
 ...but sometimes it comes looking for us.  
+
+<blockquote>
+<p><i>
+There is a crack, a crack in everything, it’s how the light gets in.
+</i></p>
+<footer>Leonard Cohen</footer>
+</blockquote>
 
 We all possess the inner wisdom necessary for healing and personal growth. We need others to help us access that inner wisdom. 
 
